@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-![image](https://github.com/Sapar012/Sapar012/assets/130172144/d6b8fcf5-491e-40a7-a0c4-b36a66f623b1)
-
 
 
 <!--
